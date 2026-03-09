@@ -1,1 +1,1 @@
-# Awasome-Skills-repo
+# Awesome-Skills-repo
